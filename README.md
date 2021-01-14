@@ -38,6 +38,7 @@ Dior: Detroit man, left for unknown reasons
 Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen, fears sending "PG18 PICS" to large women
 Karim: Strange person with the worst possible takes
 Painface: Chillest of shaft in his time, left to better himself
+dot: the dumbest boy who ever lived
 
 THOSE WHO WERE BANNED/KICKED/RAN OUT
 Flan: General troll, attempting to race bait constantly, fucked a minor
