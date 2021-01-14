@@ -8,7 +8,7 @@ Moodie: Troll? Genuine fucking weirdo? Who knows, send latinos to his area ASAP
 MODS/SHAFT
 Mojo: Rocket League King, angry when not stoned or sexting sas, bezos shifts slowly degrading his soul.
 Raf: Will vehemently argue anything all the time for seemingly no reason, sometimes knows what he is talking about, defender of JRPGs 
-Gendo: Actual insane person, will kick/ban Ghost for any possible reason, likes Sam Hyde for some reason
+Gendo: Actual insane person, enjoys a ton of media, will kick/ban Ghost for any possible reason, attains forbidden knowledge consistentently, likes Sam Hyde for some reason
 Webbie: Elitist about anything he can possibly be elitist about, actually really good at most video games, SFV apex predator 
 
 FRENCHMEN 
