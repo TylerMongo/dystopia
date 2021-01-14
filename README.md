@@ -17,7 +17,7 @@ Dean: Smart dude, vengeful cooker of those that deserve it, too nationalistic fo
 Clyde: Pretty normal but is randomly hateful 
 
 WEIRDOS
-Ghost: Former homeless man, fat, kicked around by everyone, asexual yet still sucked John Michael's cock for a half made beat and a can of soda and just generally strange. Approach with caution
+Ghost: Former homeless man, fat, kicked around by everyone, asexual yet still sucked John Michael's cock for a half made beat and a can of soda. Spilled beer on keyboard and attempted to dry it in oven. Approach with caution
 Serene/Yasay: Fat, cocaine addict that believes himself to be multiple entities. Loves holes, jiggling, doo-doo and henny. Apporach with EXTREME caution
 OST: Fittests member of chat, openly shares his face fearing no dox, is a fucking weirdo reddit twitch autist 
 Katsura: Pedophilic for Bhad Bhaby, anime weirdo, sucks at most things
