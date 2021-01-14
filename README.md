@@ -35,7 +35,7 @@ Tempura: Green ganja herb somker, enjoys art of the visual medium, comes in and 
 THOSE WHO HAVE LEFT
 Aubz: "DON'T EVER INVITE ME AGAIN EVER", ran from raf exposure
 Dior: Detroit man, left for unknown reasons
-Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen
+Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen, fears sending "PG18 PICS" to large women
 Karim: Strange person with the worst possible takes
 Painface: Chillest of shaft in his time, left to better himself
 
