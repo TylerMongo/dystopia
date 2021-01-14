@@ -21,7 +21,7 @@ Ghost: Former homeless man, fat, kicked around by everyone, asexual yet still su
 Serene/Yasay: Fat, cocaine addict that believes himself to be multiple entities. Loves holes, jiggling, doo-doo and henny. Apporach with EXTREME caution
 OST: Fittests member of chat, openly shares his face fearing no dox, is a fucking weirdo reddit twitch autist 
 Katsura: Possible pedophile, anime weirdo, sucks at most things
-Sas: Mute white woman, loves the n word more than Serene somehow, can be nice when not trolling
+Sas: Mute white woman, loves the n word more than Serene somehow, can be nice when not trolling, bezos shifts degrading soul
 Tyler/Filthy: Cracker weirdo, addicted to xanax and latinas 
 
 SLIGHTLY NORMAL SEEMING PEOPLE
