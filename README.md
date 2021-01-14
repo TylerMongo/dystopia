@@ -44,4 +44,4 @@ THOSE WHO WERE BANNED/KICKED/RAN OUT
 Flan: General troll, attempting to race bait constantly, fucked a minor
 YZ: Worst poster in the history of chat, acted up as a contrarian, died via making the worst comparison possible
 Trill: John Michael bitchboy covert racist
-
+Shattered: Overtly faggy to a terrible level, what people think the "far left" in america is.
