@@ -23,6 +23,9 @@ OST: Fittests member of chat, openly shares his face fearing no dox, is a fuckin
 Katsura: Pedophilic for Bhad Bhaby, anime weirdo, sucks at most things
 Sas: Mute white woman, loves the n word more than Serene somehow, can be nice when not trolling, bezos shifts degrading soul
 Tyler/Filthy: Cracker weirdo, addicted to xanax, weed and latinas. BROTHER
+YZ: Worst poster in the history of chat, acts up as a contrarian, 4 million dollar room, 
+Flan: General troll, attempting to race bait constantly, fucked a minor
+Karim: Strange person with the worst possible takes
 
 SLIGHTLY NORMAL SEEMING PEOPLE
 Cerises: Good at things, doesn't post enough for me to have a read on but seems mega chill
@@ -31,17 +34,14 @@ bk: Some kinda demon or something
 para: Still hasn't recovered from years old Fantasy Football incident
 fading: "this gotta be hands down the worse week of my life lost my asian anime big tiddy friend. cousin got shot on christmas , lost large amount of money on the chiefs winning by 3 because i had them 3.5 , losing 200 dollar pot to 140.60 to 140.2 Juju still alive"
 Tempura: Green ganja herb somker, enjoys art of the visual medium, comes in and out of chat
+dot: the dumbest boy who ever lived
 
 THOSE WHO HAVE LEFT
 Aubz: "DON'T EVER INVITE ME AGAIN EVER", ran from raf exposure
 Dior: Detroit man, left for unknown reasons
 Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen, fears sending "PG18 PICS" to large women
-Karim: Strange person with the worst possible takes
 Painface: Chillest of shaft in his time, left to better himself
-dot: the dumbest boy who ever lived
 
 THOSE WHO WERE BANNED/KICKED/RAN OUT
-Flan: General troll, attempting to race bait constantly, fucked a minor
-YZ: Worst poster in the history of chat, acted up as a contrarian, died via making the worst comparison possible
 Trill: John Michael bitchboy covert racist
 Shattered: Overtly faggy to a terrible level, what people think the "far left" in america is.
