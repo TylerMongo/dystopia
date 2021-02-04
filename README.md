@@ -8,7 +8,6 @@ Moodie: Troll? Genuine fucking weirdo? Who knows, send latinos to his area ASAP
 MODS/SHAFT
 Mojo: Rocket League King, angry when not stoned or sexting sas, stricken with the worst case of gay brain on the planet while being straight, bezos shifts slowly degrading his soul.
 Raf: Will vehemently argue anything all the time for seemingly no reason, sometimes knows what he is talking about, defender of JRPGs 
-Gendo: Actual insane person, enjoys a ton of media, will kick/ban Ghost for any possible reason, attains forbidden knowledge consistentently, likes Sam Hyde for some reason
 Webbie: Elitist about anything he can possibly be elitist about, actually really good at most video games, SFV apex predator 
 
 FRENCHMEN 
@@ -26,6 +25,7 @@ Tyler/Filthy: Cracker weirdo, addicted to xanax, weed and latinas. BROTHER
 YZ: Worst poster in the history of chat, acts up as a contrarian, 4 million dollar room, 
 Flan: General troll, attempting to race bait constantly, fucked a minor
 Karim: Strange person with the worst possible takes
+Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen, fears sending "PG18 PICS" to large women
 
 SLIGHTLY NORMAL SEEMING PEOPLE
 Cerises: Good at things, doesn't post enough for me to have a read on but seems mega chill
@@ -35,11 +35,10 @@ para: Still hasn't recovered from years old Fantasy Football incident
 fading: "this gotta be hands down the worse week of my life lost my asian anime big tiddy friend. cousin got shot on christmas , lost large amount of money on the chiefs winning by 3 because i had them 3.5 , losing 200 dollar pot to 140.60 to 140.2 Juju still alive"
 Tempura: Green ganja herb somker, enjoys art of the visual medium, comes in and out of chat
 dot: the dumbest boy who ever lived
+Aubz: "DON"T EVER INVITE ME AGAIN EVER" Came back recently after raf exposure, good brother
 
 THOSE WHO HAVE LEFT
-Aubz: "DON'T EVER INVITE ME AGAIN EVER", ran from raf exposure
 Dior: Detroit man, left for unknown reasons
-Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen, fears sending "PG18 PICS" to large women
 Painface: Chillest of shaft in his time, left to better himself
 
 THOSE WHO WERE BANNED/KICKED/RAN OUT
