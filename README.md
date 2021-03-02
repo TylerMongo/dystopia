@@ -1,14 +1,15 @@
 # dystopia guide
-NEW GUIDE CAUSE FUCK AUBZ, ONLY APPLIES TO THOSE ACTIVE IN MY TIME IN THE SERVER
+NEW GUIDE ONLY APPLIES TO THOSE ACTIVE IN MY TIME IN THE SERVER
 
 ADMINS/KINGS
 Wavy/hee/cj/roach/Big Hawk: Cooks anyone for anything, proffesional instigator, possible AI
 Moodie: Troll? Genuine fucking weirdo? Who knows, send latinos to his area ASAP
+Webbie: Elitist about anything he can possibly be elitist about, actually really good at most video games, SFV apex predator 
 
 MODS/SHAFT
 Mojo: Rocket League King, angry when not stoned or sexting sas, stricken with the worst case of gay brain on the planet while being straight, bezos shifts slowly degrading his soul.
 Raf: Will vehemently argue anything all the time for seemingly no reason, sometimes knows what he is talking about, defender of JRPGs 
-Webbie: Elitist about anything he can possibly be elitist about, actually really good at most video games, SFV apex predator 
+
 
 FRENCHMEN 
 Friv: Genuine freak, maybe the nicest person in chat, League of Legends degrading that kindness swiftly
@@ -16,16 +17,17 @@ Dean: Smart dude, vengeful cooker of those that deserve it, too nationalistic fo
 Clyde: Pretty normal but is randomly hateful 
 
 WEIRDOS
-Ghost: Former homeless man, fat, kicked around by everyone, asexual yet still sucked John Michael's cock for a half made beat and a can of soda. Spilled beer on keyboard and attempted to dry it in oven. Approach with caution
+Ghost: Former homeless man, fat, kicked around by everyone, asexual yet still sucked John Michael's cock for a half made beat and a can of soda. Spilled beer on keyboard and attempted to dry it in oven. Approach with caution https://media.discordapp.net/attachments/754541197183156224/811354360978210857/image0.png?width=305&height=300
 Serene/Yasay: Fat, cocaine addict that believes himself to be multiple entities. Loves holes, jiggling, doo-doo and henny. Apporach with EXTREME caution
 OST: Fittests member of chat, openly shares his face fearing no dox, is a fucking weirdo reddit twitch autist 
-Katsura: Pedophilic for Bhad Bhaby, anime weirdo, sucks at most things
+Katsura: Strange feelings for Bhad Bhaby, anime weirdo, sucks at most things
 Sas: Mute white woman, loves the n word more than Serene somehow, can be nice when not trolling, bezos shifts degrading soul
 Tyler/Filthy: Cracker weirdo, addicted to xanax, weed and latinas. BROTHER
 YZ: Worst poster in the history of chat, acts up as a contrarian, 4 million dollar room, 
 Flan: General troll, attempting to race bait constantly, fucked a minor
 Karim: Strange person with the worst possible takes
 Hero: Mentally ill weirdo, pizza king, bags his spaghetti seperate, allows mold and roach shit in his kitchen, fears sending "PG18 PICS" to large women
+Trill: Zoomer, possible covert racist
 
 SLIGHTLY NORMAL SEEMING PEOPLE
 Cerises: Good at things, doesn't post enough for me to have a read on but seems mega chill
@@ -40,7 +42,7 @@ Aubz: "DON"T EVER INVITE ME AGAIN EVER" Came back recently after raf exposure, g
 THOSE WHO HAVE LEFT
 Dior: Detroit man, left for unknown reasons
 Painface: Chillest of shaft in his time, left to better himself
+Gendo: Cried twice about losing modship despite obvious abuse of powers, left twice, wherabouts uknonwn
 
 THOSE WHO WERE BANNED/KICKED/RAN OUT
-Trill: John Michael bitchboy covert racist
 Shattered: Overtly faggy to a terrible level, what people think the "far left" in america is.
