@@ -31,7 +31,7 @@ Trill: Zoomer, possible covert racist
 
 SLIGHTLY NORMAL SEEMING PEOPLE
 Cerises: Good at things, doesn't post enough for me to have a read on but seems mega chill
-Homie: Easily offended, elote gobbler, tommys consumer, known runner
+Homie: Easily offended, elote gobbler, tommys consumer, known runner https://media.discordapp.net/attachments/754541197183156224/815040158868045824/image0.png?width=1280&height=676
 bk: Some kinda demon or something
 para: Still hasn't recovered from years old Fantasy Football incident
 fading: "this gotta be hands down the worse week of my life lost my asian anime big tiddy friend. cousin got shot on christmas , lost large amount of money on the chiefs winning by 3 because i had them 3.5 , losing 200 dollar pot to 140.60 to 140.2 Juju still alive"
